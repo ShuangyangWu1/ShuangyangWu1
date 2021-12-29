@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently pursuing my master degree in Business Analytics at University of Washington. 
 - 📚 I'm currently learning business, data analysis machine learning, and etc
-- 👨‍💻 I have 1 year working experience in product manager and skilled at analyzing customer tunnel to increase potential growth of product
+- 👨‍💻 I have 1 year working experience in product manager and skilled at analyzing customer tunnel to find the potential growth of product
 - 🏀 I am a super fan of sports, especially basketball. My favorite players is Lebron James 
 
 
