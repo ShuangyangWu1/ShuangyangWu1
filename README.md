@@ -6,9 +6,8 @@
 - 👨‍💻 I have 1 year working experience in product manager and skilled at analyzing customer tunnel to increase potential growth of product
 - 🏀 I am a super fan of sports, especially basketball. My favorite players is Lebron James 
 
-<a href="https://linkedin.com/in/https://www.linkedin.com/in/shuangyang-wu/" target="blank"><img align="center"
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/shuangyang-wu/ </h3>
 <p align="left">
 
 </p>
